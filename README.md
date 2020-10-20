@@ -1,1 +1,1 @@
-# SaravanaGanesh Ulagamani  [Link](https://uaganesh.github.io) Home 
+# SaravanaGanesh Ulagamani                   [Home](https://uaganesh.github.io)  
